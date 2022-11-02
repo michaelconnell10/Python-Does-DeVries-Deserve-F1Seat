@@ -1,4 +1,4 @@
-# Does-DeVries-Deserve-F1Seat
+# Does DeVries Deserve an F1 Seat?
 
 It was no secret that Alpha Tauri wanted Colton Herta to partner Yuki Tsunoda for the 2023 season. A move that financially makes sense. Formula 1 has
 been getting increasingly popular year over year in America (in large part thanks to Netflix's Drive to Survive) and tapping into that American market
